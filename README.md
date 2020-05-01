@@ -2,4 +2,4 @@
 
 ## 团队官方通知：
 
-- 暂无
+2020/5/1 团队主@[未知用户](https://www.luogu.com.cn/user/156353)将团主身份转让给@[zhy137036](https://www.luogu.com.cn/user/178294)!
